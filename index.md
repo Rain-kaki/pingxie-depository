@@ -2,6 +2,9 @@
 layout: default
 ---
 
+<p style="color: red; font-size: 20px;">这是一段红色且字体大小为20px的文字。</p>
+
+
 Text can be **bold**, _italic_, or ~~strikethrough~~.
 
 [Link to another page](./another-page.html).
