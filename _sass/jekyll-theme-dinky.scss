@@ -247,8 +247,11 @@ h1.header {
 }
 
 
-h1.header, a.header, a.name, header a{
+a.header, a.name, header a{
 	color: rgb(32,161,241);
+}
+h1.header{
+	color: #fff;
 }
 
 a.header {
