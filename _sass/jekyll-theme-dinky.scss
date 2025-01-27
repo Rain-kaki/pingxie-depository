@@ -248,7 +248,7 @@ h1.header {
 
 
 h1.header, a.header, a.name, header a{
-	color: #fff;
+	color: rgb(32,161,241);
 }
 
 a.header {
@@ -268,7 +268,7 @@ header li {
 	// list-style-type: none;
   	width:132px;
   // height:15px;
-	margin-bottom: 12px;
+	margin-bottom: 10px;
 	line-height: 1em;
 	padding: 6px 6px 6px 7px;
 	color: rgb(33,161,241)
@@ -298,7 +298,7 @@ header li {
 //   background: linear-gradient(to top, #C3001D 0%,#950119 100%);
 // }
 .c-title {
-	margin-bottom: 12px;
+	margin-bottom: 10px;
 }
 
 a.buttons {
