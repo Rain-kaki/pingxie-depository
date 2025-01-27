@@ -248,7 +248,7 @@ h1.header {
 
 
 a.header, a.name, header a{
-	color: rgb(32,161,241);
+	// color: rgb(32,161,241);
 }
 h1.header{
 	color: #fff;
@@ -268,13 +268,13 @@ header ul {
 }
 
 header li {
-	// list-style-type: none;
+	list-style-type: none;
   	width:132px;
   // height:15px;
 	margin-bottom: 7px;
 	line-height: 1em;
 	padding: 6px 6px 6px 7px;
-	color: rgb(32,161,241);
+	// color: rgb(32,161,241);
 
 	// background: #AF0011;
 	// background: -moz-linear-gradient(top, #AF0011 0%, #820011 100%);
@@ -301,7 +301,7 @@ header li {
 //   background: linear-gradient(to top, #C3001D 0%,#950119 100%);
 // }
 .c-title {
-	margin-bottom: 7px;
+	margin-bottom: 10px;
 }
 
 a.buttons {
@@ -319,7 +319,7 @@ a.github {
 
 a.buttons:hover {
 	color: #fff;
-	text-decoration: none;
+	// text-decoration: none;
 }
 
 
