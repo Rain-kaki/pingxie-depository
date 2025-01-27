@@ -267,7 +267,7 @@ header ul {
 header li {
 	list-style-type: none;
   width:132px;
-  height:15px;
+  // height:15px;
 	margin-bottom: 12px;
 	line-height: 1em;
 	padding: 6px 6px 6px 7px;
@@ -368,11 +368,11 @@ footer {
     display:inline;
   }
 
-  // header ul {
-  //   position:absolute;
-  //   right:130px;
-  //   top:84px;
-  // }
+  header ul {
+    position:absolute;
+    right:130px;
+    top:84px;
+  }
 }
 
 @media print, screen and (max-width: 720px) {
