@@ -268,7 +268,7 @@ header ul {
 }
 
 header li {
-	// list-style-type: none;
+	list-style-type: none;
   	width:132px;
   // height:15px;
 	margin-bottom: 10px;
@@ -289,10 +289,6 @@ header li {
 
 	// -webkit-box-shadow: inset 0px 1px 1px 0 rgba(233,2,38, 1);
 	// box-shadow: inset 0px 1px 1px 0 rgba(233,2,38, 1);
-}
-
-header li.li-has-child{
-	list-style-type: none;
 }
 
 // header li:hover {
