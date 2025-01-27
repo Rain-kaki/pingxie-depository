@@ -291,6 +291,10 @@ header li {
 	// box-shadow: inset 0px 1px 1px 0 rgba(233,2,38, 1);
 }
 
+header li.li-has-child{
+	list-style-type: none;
+}
+
 // header li:hover {
 // 	background: #C3001D;
 // 	background: -moz-linear-gradient(top, #C3001D 0%, #950119 100%);
