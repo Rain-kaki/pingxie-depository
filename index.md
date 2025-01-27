@@ -3,7 +3,7 @@ layout: default
 ---
 <img src="img/index-1.jpg" width="80%" alt="图1"><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/20250127144210666.jpg" width="80%" alt="图1"><br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/20250127185045506.jpg" width="80%" alt="图1"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/20250127190535381.jpg" width="80%" alt="图1"><br>
 
 不知道什么时候起，属于张起灵和吴邪两人的十年之约逐渐成为了捞💰的节日。<br>
 不知道什么时候起，瓶邪粉计算出来的817，逐渐被各种无关角色占据，属于《盗墓笔记》灵魂的一面逐渐消失。
