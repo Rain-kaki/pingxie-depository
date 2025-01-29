@@ -3,8 +3,8 @@
 1. [瓶邪在2024年无个人曲目](music#section-1)<br>
 2. [其他角色在2024年有单人曲目和CP曲目](music#section-2)<br> 
 3. [《万山极夜》推广，失败的宣传策略](music#section-3)<br>
-  - [失败的宣传策略误导大众](music#section-3-1)
-  - [官方对此阴阳怪气回复](music#section-3-2)
+  1. [失败的宣传策略误导大众](music#section-3-1)
+  2. [官方对此阴阳怪气回复](music#section-3-2)
 4. [声明自己从未偏袒，而后删除微博](music#section-4)<br>
 
 ## 瓶邪在2024年无个人曲目<a id="section-1"></a>
