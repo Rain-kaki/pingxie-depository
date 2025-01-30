@@ -1,17 +1,18 @@
-# 边缘化主角，扭曲十年之约含义，背刺作为购买力最大群体的世界姐
+# 扭曲作品根基，数典忘祖，背刺最大消费群体
 **目录**<br> 
-1. [瓶邪在2024年无个人曲目](music#section-1)<br>
-2. [其他角色在2024年有单人曲目和CP曲目](music#section-2)<br> 
+1. [瓶邪作为主要角色在2024年无个人曲目](music#section-1)<br>
+2. [附：其他角色在2024年有单人曲目和CP曲目](music#section-2)<br> 
 3. [《万山极夜》推广，失败的宣传策略](music#section-3)<br>
     1. [失败的宣传策略误导大众](music#section-3-1)
     2. [官方对此阴阳怪气回复](music#section-3-2)
 4. [声明自己从未偏袒，而后删除微博](music#section-4)<br>
+5. [数典忘祖，说出所谓6个主角的逆天言论](music#section-5)<br>
 
 ## 瓶邪作为主要角色在2024年无个人曲目<a id="section-1"></a>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-4.jpg" width="95%" alt="图4"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-5.jpg" width="95%" alt="图5"><br><br>
 
-## 其他角色在2024年有单人曲目和CP曲目<a id="section-2"></a>
+## 附：其他角色在2024年有单人曲目和CP曲目<a id="section-2"></a>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-1.jpg" width="95%" alt="图1"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-2.jpg" width="95%" alt="图2"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-3.jpg" width="95%" alt="图3"><br><br>
@@ -34,4 +35,6 @@
 ## 声明自己从未偏袒，而后删除微博<a id="section-4"></a>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-7.jpg" width="95%" alt="图10"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-6.jpg" width="95%" alt="图11"><br><br>
+
+## 数典忘祖，说出所谓6个主角的逆天言论<a id="section-5"></a>
 
