@@ -21,7 +21,7 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-8.jpg" width="95%" alt="图8"><br><br>
 ## 歪瓜<a id="section-4"></a>
 隐藏款1/96<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-8.jpg" width="95%" alt="图10"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-10.jpg" width="95%" alt="图10"><br><br>
 ## bilibiliGoods毛绒挂件<a id="section-5"></a>
 隐藏款概率1/12<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-9.jpg" width="95%" alt="图9"><br><br>
