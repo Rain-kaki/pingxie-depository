@@ -1,4 +1,4 @@
-# 扭曲作品根基，数典忘祖，背刺最大消费群体
+# 扭曲作品根基，背刺最大消费群体
 **目录**<br> 
 1. [瓶邪作为主要角色在2024年无个人曲目](beici#section-1)<br>
 2. [附：其他角色在2024年有单人曲目和CP曲目](beici#section-2)<br> 
@@ -6,7 +6,7 @@
     1. [失败的宣传策略误导大众](beici#section-3-1)
     2. [官方对此阴阳怪气回复](beici#section-3-2)
 4. [声明自己从未偏袒，而后删除微博](beici#section-4)<br>
-5. [数典忘祖，说出所谓6个主角的逆天言论](beici#section-5)<br>
+5. [后来竟说出所谓6个主角的逆天言论](beici#section-5)<br>
 
 ## 瓶邪作为主要角色在2024年无个人曲目<a id="section-1"></a>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-4.jpg" width="95%" alt="图4"><br><br>
@@ -36,5 +36,6 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-7.jpg" width="95%" alt="图10"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-6.jpg" width="95%" alt="图11"><br><br>
 
-## 数典忘祖，说出所谓6个主角的逆天言论<a id="section-5"></a>
+## 后来竟说出所谓6个主角的逆天言论<a id="section-5"></a>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/beici-2025-1.jpg" width="95%" alt="图11"><br><br>
 
