@@ -2,7 +2,8 @@
 **目录**<br> 
 1. [维权博，不限圈转发抽奖](way#section-1)<br>
 2. [邮件](way#section-2)<br> 
-3. [消费者协会投诉](way#section-3)<br> 
+3. [消费者协会投诉](way#section-3)<br>
+4. [B站会员购开发票入口](way#section-4)<br>
 
 ## 维权博，不限圈转发抽奖<a id="section-1"></a>
 [转载自微博用户@银河金瓜](https://weibo.com/7843896810/5126097958868236)<br>
@@ -30,7 +31,7 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-8.jpg" width="95%" alt="图8"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-9.jpg" width="95%" alt="图9"><br><br>
 
-
-
+## B站会员购开发票入口<a id="section-4"></a>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-9.jpg" width="95%" alt="图10"><br><br>
 
 
