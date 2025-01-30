@@ -1,4 +1,4 @@
-# 瓶邪2024年无个人和CP曲目，与其他角色和CP待遇不对等
+# 边缘化主角，扭曲十年之约含义，背刺作为购买力最大群体的世界姐
 **目录**<br> 
 1. [瓶邪在2024年无个人曲目](music#section-1)<br>
 2. [其他角色在2024年有单人曲目和CP曲目](music#section-2)<br> 
@@ -7,7 +7,7 @@
     2. [官方对此阴阳怪气回复](music#section-3-2)
 4. [声明自己从未偏袒，而后删除微博](music#section-4)<br>
 
-## 瓶邪在2024年无个人曲目<a id="section-1"></a>
+## 瓶邪作为主要角色在2024年无个人曲目<a id="section-1"></a>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-4.jpg" width="95%" alt="图4"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-5.jpg" width="95%" alt="图5"><br><br>
 
@@ -16,7 +16,7 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-2.jpg" width="95%" alt="图2"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-3.jpg" width="95%" alt="图3"><br><br>
 
-## 原作《万山极夜》推广，失败的宣传策略<a id="section-3"></a>
+## 原作《万山极夜》推广，边缘化主角团，失败的宣传策略<a id="section-3"></a>
 ### 失败的宣传策略误导大众<a id="section-3-1"></a>
 [转载自微博用户@银河金瓜](https://weibo.com/7843896810/5126760050461497)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wanshan-ad-1.png" width="95%" alt="图1"><br><br>
