@@ -32,6 +32,6 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-9.jpg" width="95%" alt="图9"><br><br>
 
 ## B站会员购开发票入口<a id="section-4"></a>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-9.jpg" width="95%" alt="图10"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-10.jpg" width="95%" alt="图10"><br><br>
 
 
