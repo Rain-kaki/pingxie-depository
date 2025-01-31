@@ -30,12 +30,16 @@
 
 **4️⃣为什么只有瓶邪的CP图被区别对待？<br>**
 别的cp的cp图可以背，可以抱，可以扛，可以有任何肢体接触。<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-2.jpg" width="95%" alt="图2"><br><br>
 瓶邪的柄除了过了十几年才拿出来的柄回望，竟基本上要不是站姿摆pose，要不就表情严肃得像是在密谋杀人，要不就是不熟得仿佛陌生人！<br>
 请问我们原著里又是亲，又是抱，又是拉，又是提溜，又是同乘一匹马的小情侣，不配有一张亲密些的图吗！？<br>
 试问官方，到底是避讳，还是故意亏待？<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-3.jpg" width="95%" alt="图3"><br><br>
 
 **5️⃣为什么瓶邪没有官方账号？<br>**
 盗墓笔记其他cp皆有官方账号来运营，但瓶邪没有。瓶邪甚至还被拉过来为其他cp的官方账号蹭热度。<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-4.jpg" width="95%" alt="图4"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-5.jpg" width="95%" alt="图5"><br><br>
 也就是这个时候，我们才终于明白，原来cptag是可以光明正大地被官方打出来的，官方是可以为cp办24h的，官方是可以转发cp超话同人产出的，官方是可以为cp投live2d大屏的。 <br>
 而这些，瓶邪都没有！<br>
 官方利用瓶邪的热度捧其他cp，却不给瓶邪相应的尊重！和瓶邪热度成正比的待遇！是疏忽？还是有意为之？<br>
