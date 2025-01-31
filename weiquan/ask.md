@@ -11,21 +11,21 @@
 9. [官号阴阳瓶邪粉丝。维权期间，官方不回应粉丝诉求，却对粉丝明面威胁，暗里分化，南派泛娱早对瓶邪粉怀恨在心？](ask#section-9)<br>
 10. [大开盲盒！只把瓶邪当成圈钱工具？南派泛娱，你们对瓶邪是否有一丝真心?](ask#section-10)<br>
 
-## **1️⃣《盗墓笔记》一个第一人称小说到底几个主角？<br>**<a id="section-1"></a>
+## 1️⃣**《盗墓笔记》一个第一人称小说到底几个主角？<br>**<a id="section-1"></a>
 众所周知，<br>
 《盗墓笔记》是吴邪的笔记，<br>
 以吴邪第一视角记录了他自己的人生经历，所见所感。<br>
 而南派泛娱官方！从上到下罔顾事实，强词夺理！<br>
 **竟硬抬出六个主角！<br>**
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/beici-2025-1.jpg" width="95%" alt="图11"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/beici-2025-1.jpg" width="95%" alt="图11"><br><br>
 强行忽视主角，磨灭主角存在感。<br>
 试问南派泛娱，你们对得起角色？<br>
 对得起粉丝？<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/maincharacter-3.jpg" width="95%" alt="图3"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/maincharacter-3.jpg" width="95%" alt="图3"><br><br>
 赚钱不丢人！<br>
 为了赚钱把一个第一人称小说硬说成群像文，把大男主文硬说成六个主角，**配角硬上桌才丢人！<br><br>**
 
-## **2️⃣为什么️《灯海寻尸》《万山极夜》《王母鬼宴》三部曲对主角及主角团0宣传？<br>**<a id="section-2"></a>
+## 2️⃣**为什么️《灯海寻尸》《万山极夜》《王母鬼宴》三部曲对主角及主角团0宣传？<br>**<a id="section-2"></a>
 三本书延续了盗墓笔记系列丛书风格，<br>
 以主人公吴邪的视角，第一人称记录吴邪自身的经历，<br>
 讲述了主人公吴邪和张起灵、王胖子一起进入天下第二陵的故事。<br>
@@ -36,91 +36,101 @@
 以及主角团铁三角整体高光！<br>
 但南派泛娱至今对此**0约稿0宣传！<br>**
 错误引导大部分书粉观感，使大家认为这三本与铁三角无关！！<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-2-1.jpg" width="95%" alt="图2"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-2-1.jpg" width="95%" alt="图2"><br><br>
 其中《万山极夜》和《王母鬼宴》两部作品的推广曲<br>
 一部是娱神，一部是弑神，所讲述的片段在全书中**仅有456字！<br>**
 仅仅四百多字，如何能代表整部作品？！而书中真正的主角及主角团的高光皆被掩盖！无一推广曲！<br>
 **偷梁换柱！意欲何为？<br>**
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wanshan-ad-2.jpg" width="95%" alt="图2"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wanshan-ad-2.jpg" width="95%" alt="图2"><br><br>
 [链接：灯海、万山、王母三部曲的主角团依旧是铁三角](../clarify/trilogy#section-2)<br><br>
 
-## **3️⃣既然官方可以打cp标签，为什么不打瓶邪cp标签？<br>**<a id="section-3"></a>
+## 3️⃣**既然官方可以打cp标签，为什么不打瓶邪cp标签？<br>**<a id="section-3"></a>
 24年盗墓笔记吧官方发布了其他cp带cptag的歌曲，<br>
 而瓶邪上一个官方打cptag则要追溯到18年发布的《十年人间》。<br>
+
 近年来，盗墓笔记吧发布了许多显然是瓶邪的歌曲，<br>
 如《所信非神》《烟火》。<br>
 然而，由于并没有打瓶邪标签，使得瓶邪和瓶邪粉被冷嘲热讽。<br>
-24年南派泛娱发布瓶邪cp制品，其稿件为瓶邪粉画的瓶邪cp图<br>
+
+24年南派泛娱发布瓶邪**cp制品**，其稿件为瓶邪粉画的瓶邪cp图<br>
 然而因为同样没有添加瓶邪cptag，同样导致瓶邪和瓶邪粉被攻击。<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/index-6.jpg" width="95%" alt="图2"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/index-6.jpg" width="95%" alt="图2"><br><br>
 面对这些情况，瓶邪粉对此宽慰自己，18年时大环境还是非常开放的，<br>
 但由于近年来大环境日渐收紧，官方不方便将cp标签直接打出，心领神会即可。<br>
+
 然而！官方再次用行动证明了，<br>
 **事实并非如此！<br>**
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-3.jpg" width="95%" alt="图2"><br>
-24年盗墓笔记吧官方发布了打了其他cp标签的歌曲，并无任何避讳。<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-3.jpg" width="95%" alt="图2"><br><br>
+24年盗墓笔记吧官方发布了打了其他cp标签的歌曲，**并无任何避讳。<br>**
 这一行为，又造成了瓶邪和瓶邪粉被拉踩攻击。<br>
+
 试问官方！<br>
 既然可以打出cp标签，为什么却去掉了本就属于瓶邪cp的标签！<br>
 是**偏心？<br>**
 还是官方立场嫉恨瓶邪，所以**捧一踩一**，厚此薄彼？<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-1.jpg" width="95%" alt="图2"><br><br>
 
-## **4️⃣为什么只有瓶邪的CP图被区别对待？<br>**<a id="section-4"></a>
-别的cp的cp图可以背、<br>
-可以抱、<br>
-可以扛、<br>
-可以有**任何肢体接触。<br>**
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-2.jpg" width="95%" alt="图2"><br>
+## 4️⃣**为什么只有瓶邪的CP图被区别对待？<br>**<a id="section-4"></a>
+别的cp的cp图可以背、可以抱、<br>
+可以扛、可以有**任何肢体接触。<br>**
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-2.jpg" width="95%" alt="图2"><br><br>
 瓶邪的柄除了过了十几年才拿出来的柄回望，<br>
 竟基本上要不是站姿摆pose，<br>
 要不就表情严肃得像是在密谋杀人，<br>
 要不就是不熟得仿佛陌生人！<br>
+
 请问我们原著里又是亲，又是抱，<br>
 又是拉，又是提溜，<br>
 又是同乘一匹马的小情侣，<br>
 不配有一张亲密些的图吗！？<br>
+
 试问官方，<br>
 到底是避讳，还是**故意亏待？<br>**
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-3.jpg" width="95%" alt="图3"><br><br>
 
-## **5️⃣为什么瓶邪没有官方账号？<br>**<a id="section-5"></a>
+## 5️⃣**为什么瓶邪没有官方账号？<br>**<a id="section-5"></a>
 盗墓笔记其他cp皆有官方账号来运营，<br>
 但瓶邪没有。<br>
 瓶邪甚至还被拉过来为其他cp的官方账号蹭热度。<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-6.jpg" width="95%" alt="图6"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-4.jpg" width="95%" alt="图4"><br><br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-5.jpg" width="95%" alt="图5"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-5.jpg" width="95%" alt="图5"><br><br>
 也就是这个时候，我们才终于明白，<br>
 原来cptag是可以光明正大地被官方打出来的，<br>
 官方是可以为cp办24h的，<br>
 官方是可以转发cp超话同人产出的，<br>
 官方是可以为cp投live2d大屏的！ <br>
 而这些，**瓶邪都没有！！<br>**
+
 官方利用瓶邪的热度捧其他cp，却不给瓶邪相应的尊重！<br>
 这种和瓶邪热度**不成正比**的待遇，是疏忽？<br>
 还是**有意为之？<br>**
 为什么？<br>
 官方！请给个答案！<br><br>
 
-## **6️⃣为什么官方在主角生日文案中侮辱主角，并多次找"角色黑"合作？<br>**<a id="section-6"></a>
+## 6️⃣**为什么官方在主角生日文案中侮辱主角，并多次找"角色黑"合作？<br>**<a id="section-6"></a>
 一直以来，<br>
 因《盗墓笔记》是吴邪第一人称视角记录下的自身的经历故事。<br>
 被角色黑侮辱，将吴邪称为“摄像头”。<br>
 由此纷争不断。<br>
+
 然而，令人意想不到的是，<br>
 24年吴邪生日，<br>
 官方在生日文案中发表不合时宜，涉及侮辱性的言论！<br>
 在角色生日时，<br>
 称其“初见并不惊艳”“用他的眼睛阅尽故事”。<br>
 磨灭主角人格，削弱主角存在感！<br>
+
 更被发现，<br>
 早在很多年前，官方便一直在与曾侮辱吴邪的作者合作出曲！<br>
 并且**无视粉丝多次抗议**，依旧与其合作！<br>
 这样不尊重角色的人，官方但凡有一丝爱惜角色，岂能容忍与其合作？！<br>
+
 而在25年，主角之争事件中。<br>
 对于《盗墓笔记》这部显然是吴邪为唯一主角的作品，<br>
 官方却忽视主角存在，称有六个主角！<br>
 并**在粉丝维权后，依旧不改口**！道歉声明中对此无一提及！<br>
+
 多个事件显示，南派泛娱对吴邪这位主角不只是忽视，已经到了抹黑的程度！<br>
 **作为一个官方，如此抹黑自己的角色，<br>**
 还是整部作品的主角！！<br>
@@ -128,29 +138,31 @@
 官方如此恨主角。南派泛娱，你们想干什么？<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024-wen-an-1.jpg" width="95%" alt="图5"><br><br>
 
-## **7️⃣为什么角色生日夹带私货，宣扬原作不存在的乙梦向内容？<br>**<a id="section-7"></a>
+## 7️⃣**为什么角色生日夹带私货，宣扬原作不存在的乙梦向内容？<br>**<a id="section-7"></a>
 两年前官方想走乙游路线，<br>
 张起灵生日的时候张起灵超话内设置语音，<br>
 将张起灵那句对吴邪说的那句“世间唯一联系”改成了对所有梦女说的<br>
 “我和这个世界的联系还有你们。”<br>
 粉丝维权后，之后的生日才取消。<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/weiyilianxi-3.jpg" width="95%" alt="图5"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/weiyilianxi-3.jpg" width="95%" alt="图5"><br><br>
 角色生日乙梦向，<br>
 将书中拥有自己**独立灵魂**的张起灵过分ooc，<br>
 让他说出绝不会说的话，<br>
 只为讨好乙梦向!<br>
 将他变成一个营销赚钱的工具！<br>
+
 在热爱着张起灵的粉丝的心目中，<br>
 他在书里的世界早就活了过来，<br>
 **他是个活生生的人，不是你们随意利用的工具！<br>**
 如此行径，和书中因利用张起灵所以一直被唾弃的张家人有何区别？！<br>
+
 如此磨灭人物灵魂，<br>
 官方是**恨张起灵？<br>**
 还是恨盗墓笔记不是乙游？<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2022-beici-2.jpg" width="95%" alt="图5"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2022-beici-2.jpg" width="95%" alt="图5"><br><br>
 **南派泛娱，别赚不该赚的钱！<br><br>**
 
-## **8️⃣2024年演唱会为什么没有瓶邪新曲？瓶邪的十年之约被淡化，偷渡给所有人？2025年将会如何？<br>**<a id="section-8"></a>
+## 8️⃣**2024年演唱会为什么没有瓶邪新曲？瓶邪的十年之约被淡化，偷渡给所有人？2025年将会如何？<br>**<a id="section-8"></a>
 24年817演唱会，<br>
 新出歌4首，<br>
 一首主题曲<br>
@@ -161,14 +173,16 @@
 如此明显的厚此薄彼暂先不谈，<br>
 我们要说的，<br>
 是24年稻米节推广曲！<br>
+
 一首名为《十年之约》的歌曲，<br>
 却并未明显提及瓶邪，<br>
 相反的是，mv中却明目张胆出现了6个人！<br>
 众所周知，**十年之约是张起灵和吴邪的约定。<br>**
 817是瓶邪十年之约的日子。<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/shinianzhiyue-1.jpg" width="95%" alt="图1"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/shinianzhiyue-1.jpg" width="95%" alt="图1"><br><br>
 也是因为他们两个，才衍生出来这个节日。<br>
 我们为他们的十年之约纪念，才有了音乐会。<br>
+
 然而作为24年的稻米节推广曲，又名为《十年之约》，<br>
 却未明显提及瓶邪这两个十年之约的唯二拥有者！<br>
 张起灵和吴邪的名字仅在b站不起眼的tag角落中出现过！<br>
@@ -179,7 +193,7 @@
 在歌曲最明显的，<br>
 每个人都会看到的歌曲mv中，<br>
 则明目张胆出现了六个人！<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-12.jpg" width="95%" alt="图5"><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2024music-12.jpg" width="95%" alt="图5"><br><br>
 如此偷梁换柱，<br>
 淡化瓶邪和十年之约关系，<br>
 是否只为将人慢慢洗脑认为十年之约和六人有关？？？<br>
@@ -191,10 +205,12 @@
 别的角色有coser伴舞，<br>
 场景绚烂，角色高光拉满，<br>
 而只能在后半场，跟着唱几首已经被盘烂的老歌。<br>
+
 24年的厚此薄彼，让我们对2025年，<br>
 这个**因瓶邪而特殊的年份，<br>**
 这个属于瓶邪的第二个十年之约，<br>
 怀有深切的忧虑！<br>
+
 如今距离2025年817只有七个月，<br>
 现在有别的角色的推广曲，<br>
 别的cp的cp曲。<br>
@@ -214,6 +230,7 @@
 将主角吴邪淡化，抬配角上桌？<br>
 将十年之约、817、稻米节与瓶邪的关系淡化，<br>
 让人误以为十年之约是属于所有人的？<br>
+
 24年的《十年之约》是否只是一个过渡，<br>
 只为了25年《重逢之约》，<br>
 将只属于瓶邪的十年之约彻底偷渡给所有人？！！<br>
@@ -232,15 +249,17 @@
 你们对得起角色？对得起瓶邪？！<br>
 **2025年，请勿喧宾夺主！<br><br>**
 
-## **9️⃣官号阴阳瓶邪粉丝。维权期间，官方不回应粉丝诉求，却对粉丝明面威胁，暗里分化，南派泛娱早对瓶邪粉怀恨在心？<br>**<a id="section-9"></a>
+## 9️⃣**官号阴阳瓶邪粉丝。维权期间，官方不回应粉丝诉求，却对粉丝明面威胁，暗里分化，南派泛娱早对瓶邪粉怀恨在心？<br>**<a id="section-9"></a>
 主角事件一经发生，<br>
 连同过往所遭受的不公平待遇，<br>
 瓶邪粉为吴邪，为张起灵，为瓶邪进行合理维权。<br>
+
 然而，从维权开始，<br>
 官方超话多位**主持人辱骂、威胁粉丝！<br>**
 对粉丝人身攻击！造谣污蔑！<br>
 将粉丝的合理维权污蔑成“撕番位”，<br>
 将粉丝拳拳维护之心说成被诟病的“饭圈行为”。<br>
+
 如此污蔑一片真心的粉丝，<br>
 官方依旧对其**放任不管！<br>**
 不做任何处理！<br>
@@ -265,6 +284,7 @@
 **同人起家却举报同人的官方仅此一家！<br>**
 靠瓶邪发家却恨瓶邪！
 南派泛娱，勿忘来时路！<br>
+
 除此以外，南派泛娱利用脂粉（官方职业粉丝）联系维权的瓶邪粉，<br>
 企图用话术将其分化，让粉丝停止维权！<br>
 南派泛娱，你们会用这些肮脏！下作！下三滥的手段！<br>
@@ -275,7 +295,7 @@
 南派泛娱，请回答！<br>
 [链接：官方相关人员辱骂消费者合集](../2025npfy/employee)
 
-## **🔟大开盲盒！只把瓶邪当成圈钱工具？南派泛娱，你们对瓶邪是否有一丝真心？<br>**<a id="section-10"></a>
+## 🔟**大开盲盒！只把瓶邪当成圈钱工具？南派泛娱，你们对瓶邪是否有一丝真心？<br>**<a id="section-10"></a>
 去年817，<br>
 官方拿许多瓶邪古早神图出【盲盒】，且【**不保配**】，<br>
 一对隐藏吧唧要想100%配对要花小1w来端箱，<br>
@@ -283,12 +303,14 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-1.jpg" width="95%" alt="图5"><br><br>
 甚至有盲盒里**主要为其他角色，<br>**
 却将瓶邪设置为【不保配】隐藏。 <br>
+
 世界姐向南派泛娱提出意见，<br>
 被南派泛娱恶意大量回复控评点内赞压下。<br>
-我恨你！<br>
-但我爱你的钱！<br>
+"我恨你！"<br>
+"但我爱你的钱！"<br>
 只把瓶邪当作用盲盒**圈钱**的工具，<br>
 却不给瓶邪应有的待遇。<br>
+
 **南派泛娱，你们有没有良心？！<br>**
 [链接：割韭菜盲盒合集](../2025npfy/goods)
 
