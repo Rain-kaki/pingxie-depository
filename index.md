@@ -163,7 +163,7 @@ layout: default
 官方是**恨张起灵？<br>**
 还是恨盗墓笔记不是乙游？<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2022-beici-2.jpg" width="95%" alt="图5"><br><br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2022-beici-6-2.jpg" width="95%" alt="图5"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/2022-beici-6-1.jpg" width="95%" alt="图5"><br><br>
 **南派泛娱，别赚不该赚的钱！<br><br>**
 
 ## **8.2024年演唱会为什么没有瓶邪新曲？瓶邪的十年之约被淡化，偷渡给所有人？2025年将会如何？<br>**<a id="section-8"></a>
@@ -307,7 +307,7 @@ layout: default
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-1.jpg" width="95%" alt="图5"><br><br>
 甚至有盲盒里**主要为其他角色，<br>**
 却将瓶邪设置为【不保配】隐藏。 <br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-6-2.jpg" width="95%" alt="图5"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-6-1.jpg" width="95%" alt="图5"><br><br>
 世界姐向南派泛娱提出意见，<br>
 被南派泛娱恶意大量回复控评点内赞压下。<br>
 "我恨你！"<br>
