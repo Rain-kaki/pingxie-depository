@@ -47,7 +47,7 @@
 ## **3.既然官方可以打cp标签，为什么不打瓶邪cp标签？<br>**<a id="section-3"></a>
 24年盗墓笔记吧官方发布了其他cp带cptag的歌曲，<br>
 而瓶邪上一个官方打cptag则要追溯到18年发布的《十年人间》。<br>
-
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-11.jpg" width="95%" alt="图11"><br><br>
 近年来，盗墓笔记吧发布了许多显然是瓶邪的歌曲，<br>
 如《所信非神》《烟火》。<br>
 然而，由于并没有打瓶邪标签，使得瓶邪和瓶邪粉被冷嘲热讽。<br>
@@ -73,7 +73,7 @@
 ## **4.为什么只有瓶邪的CP图被区别对待？<br>**<a id="section-4"></a>
 别的cp的cp图可以背、可以抱、<br>
 可以扛、可以有**任何肢体接触。<br>**
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-2.jpg" width="95%" alt="图2"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/cptag-2-2.jpg" width="95%" alt="图2"><br><br>
 瓶邪的柄除了过了十几年才拿出来的柄回望，<br>
 竟基本上要不是站姿摆pose，<br>
 要不就表情严肃得像是在密谋杀人，<br>
