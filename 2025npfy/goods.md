@@ -14,7 +14,7 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-3.jpg" width="95%" alt="图3"><br><br>
 ## 雨中花夜盲盒<a id="section-2"></a>
 瓶邪只作为隐藏款出现，普通款大部分为其他角色<br>
-<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-6-2.jpg" width="95%" alt="图6"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-6-1.jpg" width="95%" alt="图6"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-6.jpg" width="95%" alt="图6"><br><br>
 ## 麦乐微美<a id="section-3"></a>
 隐藏款1/72<br>
