@@ -5,18 +5,21 @@
 3. [消费者协会投诉](way#section-3)<br>
 4. [B站会员购开发票入口](way#section-4)<br>
 
-## 维权博，不限圈转发抽奖<a id="section-1"></a>
+<a id="section-1"></a>
+## 维权博，不限圈转发抽奖
 [转载自微博用户@银河金瓜](https://weibo.com/7843896810/5126097958868236)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-1.jpg" width="95%" alt="图1"><br><br>
 
-## 邮件<a id="section-2"></a>
+<a id="section-2"></a>
+## 邮件
 [转载自微博用户@用我一生换你十年天真吴邪](https://weibo.com/6465388778/5126766060634522)<br>
 南派三叔合作邮箱：forestexport@126.com<br>
 南派泛娱商务交流邮箱：lzsw@npfychina.com<br>
 南派泛娱人力资源:lzhr@npfychina.com​​​pengqing@npfychina.com<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-2.jpg" width="95%" alt="图2"><br><br>
 
-## 消费者协会投诉<a id="section-3"></a>
+<a id="section-3"></a>
+## 消费者协会投诉
 [转载自微博用户@UnReveAJamais](https://weibo.com/5258949011/PbEyQ7kmv)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-3.jpg" width="95%" alt="图3"><br><br>
 **维权行动进一步升级‼️请大家有购买过@南派量子泛娱正版周边 动动手进行消协投诉，只需要两分钟就可以填写完成‼️<br>**
