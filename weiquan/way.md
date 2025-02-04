@@ -1,16 +1,25 @@
 # 维权途径补充
 **目录**<br> 
-1. [维权博，不限圈转发抽奖](way#section-1)<br>
-2. [邮件](way#section-2)<br> 
-3. [消费者协会投诉](way#section-3)<br>
-4. [B站会员购开发票入口](way#section-4)<br>
+1. [停购退款！](way#section-1)<br>
+2. [维权博，不限圈转发抽奖](way#section-2)<br>
+3. [邮件](way#section-3)<br> 
+4. [消费者协会投诉](way#section-4)<br>
+5. [B站会员购开发票入口](way#section-5)<br>
 
 <a id="section-1"></a>
+## 停购退款！
+[转载自微博用户@泠司-瓶邪洁癖版](https://weibo.com/1807148510/5129223161513775)<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-12.jpg" width="95%" alt="图12"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-13.jpg" width="95%" alt="图13"><br><br>
+[转载自微博用户@这辈子下辈子都磕我哥嫂](https://weibo.com/7913421394/5127215648609694)<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-11.jpg" width="95%" alt="图11"><br><br>
+
+<a id="section-2"></a>
 ## 维权博，不限圈转发抽奖
 [转载自微博用户@银河金瓜](https://weibo.com/7843896810/5126097958868236)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-1.jpg" width="95%" alt="图1"><br><br>
 
-<a id="section-2"></a>
+<a id="section-3"></a>
 ## 邮件
 [转载自微博用户@用我一生换你十年天真吴邪](https://weibo.com/6465388778/5126766060634522)<br>
 南派三叔合作邮箱：forestexport@126.com<br>
@@ -18,7 +27,7 @@
 南派泛娱人力资源:lzhr@npfychina.com​​​pengqing@npfychina.com<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-2.jpg" width="95%" alt="图2"><br><br>
 
-<a id="section-3"></a>
+<a id="section-4"></a>
 ## 消费者协会投诉
 [转载自微博用户@UnReveAJamais](https://weibo.com/5258949011/PbEyQ7kmv)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-3.jpg" width="95%" alt="图3"><br><br>
@@ -34,7 +43,8 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-8.jpg" width="95%" alt="图8"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-9.jpg" width="95%" alt="图9"><br><br>
 
-## B站会员购开发票入口<a id="section-4"></a>
+<a id="section-5"></a>
+## B站会员购开发票入口
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/wq-way-10.jpg" width="95%" alt="图10"><br><br>
 
 
