@@ -1,4 +1,4 @@
-# 音乐&音乐会相关数据统计
+# 资源倾斜：音乐&音乐会相关数据统计
 
 [转载自微博用户@惊觉相思两不露](https://weibo.com/7503341396/5130819798566279)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/music-data-1.jpg" width="95%" alt="图1"><br><br>
