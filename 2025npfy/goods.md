@@ -6,6 +6,7 @@
 4. [歪瓜](goods#section-4)<br>
 5. [bilibiliGoods毛绒挂件](goods#section-5)<br>
 6. [拾梦兽-奇境人生](goods#section-6)<br>
+7. [消费者抵制盲盒商法，却遭官方变相捂嘴](goods#section-7)<br>
 
 <a id="section-1"></a>
 ## 刹海盲盒
@@ -40,3 +41,11 @@
 ## 拾梦兽-奇境人生
 隐藏款1/64<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-11.jpg" width="95%" alt="图11"><br><br>
+
+<a id="section-7"></a>
+## 消费者抵制盲盒商法，却遭官方变相捂嘴
+[转载自微博用户@长白雪落西湖水](https://weibo.com/6866634099/5131600889380974)<br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-12.jpg" width="95%" alt="图12"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-13.jpg" width="95%" alt="图13"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-14.jpg" width="95%" alt="图14"><br><br>
+<img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/goods-15.jpg" width="95%" alt="图15"><br>
