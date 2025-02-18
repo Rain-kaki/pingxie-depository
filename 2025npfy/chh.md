@@ -8,12 +8,14 @@
 ## 主持人小团体抱团
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/qmlw.jpg" width="95%" alt="图1"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/qmlw-1.jpg" width="95%" alt="图1"><br><br>
+[转载自微博用户@长白雪落西湖水](https://weibo.com/6866634099/5131924800800724)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/qz-2.jpg" width="95%" alt="图2"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/qz-1.jpg" width="95%" alt="图1"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/qz-3.jpg" width="95%" alt="图3"><br><br>
 
 <a id="section-2"></a>
 ## 2023年投票事件，抱团造谣、网暴、刷票
+[转载自微博用户@江潯潯](https://weibo.com/7964073684/5129988217766418)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/tp-1.jpg" width="95%" alt="图1"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/tp-2.jpg" width="95%" alt="图2"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/tp-3.jpg" width="95%" alt="图3"><br><br>
@@ -35,6 +37,7 @@
 
 <a id="section-3"></a>
 ## 维权事件中，抱团霸凌、党同伐异
+[转载自微博用户@银河金瓜](https://weibo.com/7843896810/5131909040968400)<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/zcr-1.jpg" width="95%" alt="图1"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/zcr-2.jpg" width="95%" alt="图2"><br><br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/ch/zcr-3.jpg" width="95%" alt="图3"><br><br>
