@@ -19,7 +19,7 @@
 <a id="section-3"></a>
 ## 维权初步成果：新增官方账号@喜来眠留言簿，发布生日MV，楼内致歉；但官方未发布任何公告形式道歉，MV包含瓶邪内容但未标注瓶邪TAG，诚意明显不足
 [链接：吴邪生日MV《惟此一人》@喜来眠留言簿](https://weibo.com/7982012494/Ph8LZnD04)<br>
-未标注瓶邪TAG。
+未标注瓶邪TAG。<br>
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/news-3-1.jpg" width="95%" alt="图1"><br><br>
 [链接：雨村笔记旅行篇官方推广曲《缓缓归》@盗墓笔记吧](https://weibo.com/2423318460/Ph8M51LaS)<br>
 曲子内容看不出与原暂定名“神威”有任何联系，联系其他宣传曲命名，令人怀疑原暂定名是否包含恶意。<br>
