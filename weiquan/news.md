@@ -26,7 +26,7 @@
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/news-3-2.jpg" width="95%" alt="图1"><br><br>
 @盗墓笔记吧声明会补上同系列张起灵推广曲。但2025年这个重要年份下，作为十年之约当事人的瓶邪单人和瓶邪CP并没有得到更多的曲目。
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/news-3-3.jpg" width="95%" alt="图2"><br><br>
-道歉没有任何正式的公开声明，只出现在楼内和回复中，没有前因后果，语气不郑重阴阳怪气。
+道歉没有任何正式的公开声明，只出现在楼内和回复中，没有前因后果，语气不郑重阴阳怪气。<br>
 并且在楼内质疑的人多为瓶邪粉的情况下，挑选了瓶邪拆逆来回复。
 <img src="https://2025rak-1330218385.cos.ap-shanghai.myqcloud.com/pingxie-depository/news-3-4.jpg" width="95%" alt="图3"><br>
 
